@@ -1,2 +1,2 @@
 # Games
-The Games that ruined you.
+The games that ruined you.
